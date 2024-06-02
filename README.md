@@ -1,3 +1,3 @@
 This is my first project name fanta 
 # FAnta
-i want t chnsg the fant 
+I am happy to make my project and lovely to be working on it.
